@@ -3,5 +3,5 @@
 </p> 
 
 <p align="center">
-![](https://komarev.com/ghpvc/?username=ivantiIlyaoi&label=ohhhhh+yeahhhh+?!&color=944450&style=plastic&base=5046)
+![](https://komarev.com/ghpvc/?username=yivantiIlyaoi&color=dc143c)
 </p>
