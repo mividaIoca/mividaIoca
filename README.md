@@ -4,7 +4,8 @@
   ⠀⠀⠀
 　
 
- <p align="center"><img width="400" height="400" alt="transparent-Photoroom (2)" src="https://github.com/user-attachments/assets/a65b80ca-b83e-487e-b69c-729e6e1f9f35"/>
+ <p align="center"><img width="400" height="400" alt="blur_edges" src="https://github.com/user-attachments/assets/63acae70-e297-4504-a3dc-fbf97047d624" />
+
    
   　<p align="center">[rentry](https://rentry.co/yourtill) 𖤣.𖥧.𖡼.⚘ [ata](https://tilltheend.atabook.org/) 𖥧.⚘.𖤣.𖡼 [twt](https://x.com/chudtill) 
 
