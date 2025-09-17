@@ -9,3 +9,4 @@
    
   　<p align="center">[rentry](https://rentry.co/yourtill) 𖤣.𖥧.𖡼.⚘ [ata](https://tilltheend.atabook.org/) 𖥧.⚘.𖤣.𖡼 [twt](https://x.com/chudtill) 
 
+　<p align="center">  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lopixy62qwtcqehtyvjridb8u&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=db4359&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=lopixy62qwtcqehtyvjridb8u&redirect=true)
